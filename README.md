@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @XICONIZX
+- 👋 Hi, I’m ICXNIX
 - 👀 I’m interested in music, gaming, coding, and helping people self advertise 
 - 🌱 I’m currently learning coding, music production, etc
 - 💞️ I’m looking to collaborate on anything to help others support themselves 
